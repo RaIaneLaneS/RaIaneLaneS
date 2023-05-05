@@ -1,4 +1,7 @@
-### Hi there 👋
+### Olá, me chamo Raiane 🌵 ... 
+Seja Bem-vindo ao meu perfil 👋
+
+
 
 <!--
 **RaIaneLaneS/RaIaneLaneS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
