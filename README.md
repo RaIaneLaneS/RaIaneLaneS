@@ -1,5 +1,5 @@
-### Olá, me chamo Raiane 🌵🌼... 
-Seja Bem-vindo ao meu perfil 👋
+### Olá, me chamo Raiane 🌵
+ 🥀 Seja Bem-vindo ao meu perfil 
 
 
 
